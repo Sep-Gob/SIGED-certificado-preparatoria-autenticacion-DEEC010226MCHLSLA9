@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DEEC010226MCHLSLA9
+DEEC010226MCHLSLA9
